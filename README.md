@@ -10,7 +10,7 @@ My career path took a different turn and I applied to join the Ghana Armed Force
 
 *After completing six months of Basic Infantry Training Course 2-22 (BITC 2-22) at the Jungle Warfare School, Achiase, I passed out on 11 November 2022. I was then posted to the 64 Infantry Regiment, Gondar Barracks, Burma Camp, where my infantry journey began*.
 
-In 2024, I attended the Clerk Course. After completing the course, I was posted from the 64 Infantry Regiment to Headquarters, Army Special Operations Brigade, where I currently serve as a Clerk GD.
+In 2024, I attended the Clerk Course. After completing the course, I was posted from the 64 Infantry Regiment to Headquarters, Army Special Operations Brigade (HQ ASOB), where I currently serve as a Clerk GD.
 Current Training and Interests
 I am currently enrolled in the Basic Information Technology Course for Non-Commissioned Officers 2-26, as part of my commitment to learning and advancing my personal and professional development.
 
