@@ -5,7 +5,7 @@
 I began my elementary education at Bethel Presby Experimental School, Atonsu-Agogo. I completed Junior High School at Adumasa All Saints Presby JHS in 2017.
 
 *I then attended Kofi Agyei Senior High School, located at Fawoade-Mamponteng, where I studied General Arts and completed my secondary education in 2020. Afterward, I applied to study nursing and gained admission to Mampong Nursing and Midwifery Training College in 2021*.
-## Military Career##
+## Military Career
 My career path took a different turn and I applied to join the Ghana Armed Forces. I was recruited on 27 May 2022, at the age of 22.
 
 *After completing six months of Basic Infantry Training Course 2-22 (BITC 2-22) at the Jungle Warfare School, Achiase, I passed out on 11 November 2022. I was then posted to the 64 Infantry Regiment, Gondar Barracks, Burma Camp, where my infantry journey began*.
